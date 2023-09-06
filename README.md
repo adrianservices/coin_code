@@ -8,8 +8,13 @@
 ・If you want to buy a quality code, DM me from Telegram: https://t.me/adrianservices ✅
 
 # If You Want to Use Code That is Bad
+
 🔵Adapt the names in the code to your own coin
+
 🔵Set how much slippage you get on trading
+
 🔵Make sure you dont make any mistakes in the codes
+
 🔵And watch this video: https://www.youtube.com/watch?v=G6shRPixqVY
+
 ✅If you dont want to deal with these, contact me via Telegram (https://t.me/adrianservices) and I will prepare a good coin code for you.
