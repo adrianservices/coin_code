@@ -17,4 +17,4 @@
 
 🔵And watch this video: https://www.youtube.com/watch?v=G6shRPixqVY
 
-✅If you dont want to deal with these, contact me via Telegram (https://t.me/adrianservices) and I will prepare a good coin code for you.
+✅If you dont want to deal with these, DM me from Telegram: https://t.me/adrianservices if you are interested.🤝 and I will prepare a good coin code for you.
