@@ -5,7 +5,7 @@
 
 ・But I have a code where you can renounce your Contract address, auto burn, have a reward mechanism, and taxes come as bnb. ✅
 
-・If you want to buy a quality code, DM me from Telegram: https://t.me/adrianservices ✅
+・If you want to buy a quality code, DM me from Telegram: https://t.me/swiftservicesowner ✅
 
 # If You Want to Use Code That is Bad
 
@@ -17,4 +17,4 @@
 
 🔵And watch this video: https://www.youtube.com/watch?v=G6shRPixqVY
 
-✅If you dont want to deal with these, DM me from Telegram: https://t.me/adrianservices if you are interested.🤝 and I will prepare a good coin code for you.
+✅If you dont want to deal with these, DM me from Telegram: https://t.me/swiftservicesowner if you are interested.🤝 and I will prepare a good coin code for you.
